@@ -1,4 +1,4 @@
-<img src="" width="200" />
+<img src="Notes_251001_034104_a7c.jpg" width="300" />
 
 # 🌍 DAVIAN — THE CIVILIZATION  
 
